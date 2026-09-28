@@ -1,2 +1,1 @@
-بلیط هواپیما
-https://www.takish724.com/
+<a href="https://www.takish724.com/">بلیط هواپیما</a>
